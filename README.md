@@ -1,4 +1,4 @@
-# ![](https://64.media.tumblr.com/c3829a5eed87304f6a4efa2d301d85cb/ce4af54fa3a5a68c-00/s1280x1920/206cf81389234b7c63f87387840066c69cef7423.gifv)
+
 ![](https://www.kindpng.com/picc/m/205-2055076_transparent-rei-ayanami-png-png-download.png)
 
 <!--
