@@ -1,5 +1,4 @@
 
-![](https://www.kindpng.com/picc/m/205-2055076_transparent-rei-ayanami-png-png-download.png)
 
 <!--
 **Inconsistentmale/Inconsistentmale** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
